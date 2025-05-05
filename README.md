@@ -73,7 +73,7 @@ Contributions are welcome! Please fork the repository and submit a pull request.
 
 ## Contact
 
-For support, email desaijainil9657@gmail.com or me at DM at [@jainil_desai](https://www.instagram.com/jainil_desai/) on Instagram.
+For support, email harshgajjar280@gmail.com or me at DM at [@hrsh082](https://www.instagram.com/hrsh_082/) on Instagram.
 
 #
 
